@@ -8,6 +8,6 @@
 
 “I like petting them animals. :3” - a Furry, probably 
 
-~~"It’s literally a "Stardew Valley” clone!"~~ - mistaken person
+~~"It’s literally a "Stardew Valley” clone!"~~ - mistaken person, surely
 
 “can’t you even stop to eat!? Isn’t there a pause button!? >:c” - your angry mother, probably
